@@ -4,7 +4,7 @@
 - 💞️ I want to collaborate with positive creative people like me.
 - 📫 How to reach me ... bans63.ru is my site, where are the contact details and links to social networks.
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: Kolya loves onions and ₽©
 
 <!---
 basn63/basn63 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
