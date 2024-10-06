@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning create cool site in my custom CMS by basn
 - 💞️ I want to collaborate with positive creative people like me.
 - 📫 How to reach me ... bans63.ru is my site, where are the contact details and links to social networks.
-- 😄 Pronouns: ...
+- 😄 Pronouns: 63
 - ⚡ Fun fact: Kolya loves onions and ₽©
 
 <!---
